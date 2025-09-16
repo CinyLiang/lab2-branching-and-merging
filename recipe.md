@@ -9,7 +9,6 @@
 - 1/2 cup cream
 - 2 eggs
 - 20 g butter
-- ...
 
 ## Instructions:
 1. Preheat the oven to 375°F (190°C).
